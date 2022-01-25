@@ -1,1 +1,1 @@
-# .github
+https://www.jamakase.com/
